@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @itzyaboihb
 - 👀 I’m interested in Gaming
 - 🌱 I’m currently learning Python
-- 💞️ I’m looking to collaborate on 
 - 📫 How to reach me Discord:itzyaboihb#7639
